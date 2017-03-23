@@ -1,4 +1,4 @@
-# [ダイス]Dice
+# [相手は死ぬ]EternalForceBlizzard
 ## クレジット：6h57bk3G0 様
 ## クレジット：N8QoJ7S00 様
 [すごい技考えた](http://news20.2ch.net/test/read.cgi/news/1147887904/)
